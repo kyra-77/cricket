@@ -1,4 +1,4 @@
 # cricket
 ipl is going on
 <br>
-I want RCB or GT to win
+I want RCB and GT to win
